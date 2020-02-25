@@ -2,7 +2,7 @@
 
 # twitter.com/rootraz0r - telegram: rootrazor
 
-![resim](https://i.resimyukle.xyz/I2963R.png)
+![resim](https://i.imgyukle.com/2020/02/25/n1qE28.png)
 
 
 
